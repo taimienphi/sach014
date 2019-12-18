@@ -1,0 +1,25 @@
+---
+author: Nhiều tác giả
+categories:
+- Y Học - Sức Khỏe
+description: Tuổi Mới Lớn Và Vấn Đề Tình Dục
+download_links:
+- info: epub
+  url: https://sachvui.com/download/epub/2685
+- info: mobi
+  url: https://sachvui.com/download/mobi/2686
+image: https://sachvui.com/cover/2016/tuoi-moi-lon-va-van-de-tinh-duc.jpg
+layout: post
+permalink: /tuoi-moi-lon-va-van-de-tinh-duc.html
+tags:
+- tải sách miễn phí
+- tải sách nhanh
+- tải ebooks miễn phí
+- pdf miễn phí
+- Tuổi Mới Lớn Và Vấn Đề Tình Dục ebook
+- Tuổi Mới Lớn Và Vấn Đề Tình Dục pdf
+thumbnail_url: https://sachvui.com/cover/2016/tuoi-moi-lon-va-van-de-tinh-duc.jpg
+title: Tuổi Mới Lớn Và Vấn Đề Tình Dục
+---
+
+ <div class="item-desc text-justify"> <p>Thời kỳ dậy thì mà bất cứ một thiếu niên nào cũng phải trải qua những biến đổi quan trọng về cơ thể cũng như về tâm lý. Dưới góc độ sinh học, tuổi dậy thì là thời kỳ trưởng thành sinh dục, nghĩa là bắt đầu có khả năng sinh con. Ở bạn gái được thể hiện là sự có kinh nguyệt lần đầu và ở bạn trai là sự phóng tinh lần đầu. Các bạn gái thường bắt đầu dậy thì ở độ tuổi từ 9 - 14 và ở các bạn nam dậy thì muộn hơn ở độ tuổi từ 12 - 15. Nhìn chung, nữ dậy thì sớm hơn nam khoảng 2 – 3 tuổi. Các bạn trẻ có người sẽ dậy thì sớm hơn và cũng có người dậy thì muộn hơn một vài năm.</p><p>Xã hội và môi trường là các yếu tố quan trọng ảnh hưởng từ khi trẻ bắt đầu ý thức cho đến khi kết thúc giai đoạn này. Nếu chúng ta để ý, quan tâm và hiểu biết thấu đáo về những thay đổi sinh học, tâm lý của tuổi mới lớn, những thay đổi của môi trường tác động lên chúng, các hệ lụy pháp lý, đạo đức, các phong trào, mốt, quan niệm về lối sống, âm nhạc, y phục, trò giải trí, các vi phạm luật pháp hay tội ác… thì khả dĩ có thể cung cấp cho chúng ta thêm những thông tin để tìm ra biện pháp cụ thể hóa các dịch vụ chăm sóc sức khỏe cho tuổi mới lớn tốt hơn, trong đó vấn đề ma túy, các bệnh lây qua đường tình dục, hiểm họa AIDS, kỹ năng sống phải là những vấn đề được quan tâm hàng đầu.</p><p>Ở tuổi dậy thì thường hay tò mò muốn tìm hiểu những sinh hoạt tình dục của người lớn, và bắt đầu cảm nhận những kích thích tình dục thì hay tìm, sưu tầm những sách báo, hình ảnh khiêu dâm để đọc, xem và dùng đó là công cụ để thỏa mãn những đòi hỏi sinh lý của tuổi dậy thì. Việc xem những hình ảnh khiêu dâm có thể gây nên một số ảnh hưởng tai hại đến thanh thiếu niên về sức khỏe, phát triển tính tình, ý thức đạo đức.<br>Để theo dõi sự trưởng thành ở tuổi mới lớn thì việc quan sát tiến trình lớn lên ở trẻ, việc thăm khám thực thể và một vài xét nghiệm có thể giúp cho cha mẹ hoặc người thầy thuốc nhận dạng được các vấn đề bệnh lý thường xảy ra trong độ tuổi này như chậm lớn, suy dinh dưỡng hay các vấn đề rối loạn tâm lý.</p><p>Từ 10 – 13 tuổi: đây là thời kỳ đầu của tuổi dậy thì, ở giai đoạn này thường là rơi vào những trường hợp dậy thì sớm. Tuy nhiên, thời kỳ này thường được xác định bằng sự bắt đầu lớn lên và phát triển về mặt sinh học và tâm lý.<br>Từ 14 – 16 tuổi: sự phát triển cơ thể về mặt giới tính nhanh và khá đầy đủ có thể dẫn đến sự xuất hiện các xung đột tình dục như tình trạng thủ dâm, quan hệ tình dục với gái mại dâm hay nữ với nam. Đây là thời kỳ phát triển mau lẹ về mặt nhận thức và bắt đầu hiểu các quan niệm trừu tượng. Lúc này, ảnh hưởng của gia đình, môi trường, xã hội rất quan trọng. Những hoài nghi về việc làm của người lớn, sự phán xét của xã hội dễ làm tổn thương những giá trị đạo đức trong sáng mà trẻ đã được dạy dỗ.</p><p>Từ 17 – 20 tuổi: tức là cuối giai đoạn của tuổi mới lớn, là thời kỳ thiết lập bản sắc con người, vừa có mối quan hệ riêng tư vừa có khuynh hướng tham gia xã hội.<br>Theo quan niệm trước đây, tuổi mới lớn là lứa tuổi dồi dào sinh lực và đầy đủ sức khỏe nhất. Nhưng nay, nếu nhìn và đánh giá lại tình trạng sức khỏe với sự phát triển của xã hội như sự ô nhiễm môi trường, đô thị hóa, phát triển giao thông, lạm dụng và nghiện ngập ma túy, rượu, các bệnh lây qua đường tình dục, HIV/AIDS, nạn bạo hành trên đường phố, tai nạn xe cộ, giết người, hiếp dâm, tự tử và bệnh tâm thần,… thì ta thấy có sự gia tăng đáng kể tỷ lệ tử vong ở tuổi mới lớn và thanh niên.</p><p>Quan hệ tình dục sớm sẽ dẫn đến tình trạng mang thai ngoài ý muốn, đặc biệt là ở tuổi mới lớn, khi mà đa số các em chưa có một kinh nghiệm nào trong cuộc sống, tình yêu và nhất là hiểu biết về các biện pháp ngừa tránh thai. Theo thống kê, hàng năm cả nước có khoảng 70.000 trường hợp nạo phá thai ở lứa tuổi vị thành niên. Việc nạo phá thai ở lứa tuổi này gây ra nhiều tác hại đến sức khỏe. Thường các em không dám đến bệnh viện mà tìm đến các nơi phá thai bất hợp pháp, không đảm bảo tiêu chuẩn vệ sinh và chuyên môn nên dễ nguy hiểm đến tính mạng. Tuổi dậy thì và các quan hệ tình dục sớm là một thực trạng củagiới trẻ hiện nay, cũng là một thực tế mà xã hội và ngành y tế, truyền thông phải đối mặt. Do đó, cần phải phát huy vai trò của gia đình và nhà trường trong việc giáo dục giới tính cho lứa tuổi này và đây cũng là bức xúc được xã hội quan tâm, theo dõi và ngăn chặn.</p> </div>
